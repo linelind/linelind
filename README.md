@@ -2,7 +2,7 @@
 
 **Pronouns:** She / Her
 
-**LinkedIn:** https://www.linkedin.com/in/line-lindheim-t%C3%B8resby-6667a812b/
+**LinkedIn:** [My profile](https://www.linkedin.com/in/line-lindheim-t%C3%B8resby-6667a812b/)
 
 ## About me
 
