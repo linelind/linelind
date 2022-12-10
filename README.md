@@ -13,4 +13,4 @@ I am a recently graduated frontend developer based in Oslo, Norway. I enjoy solv
 - 🥈 I also have some experience with TypeScript, Next, CSS Modules, Styled Components, Tailwind CSS
 - 🤿 Currently diving deeper into CSS and accessibility
 - 💖 Learning and expanding my horizon
-- 🏝️ In my spare time I spend time on literature, movies, gaming and friends
+- 🏝️ In my spare time I spend time on literature, movies, gaming, travel and cooking
