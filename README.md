@@ -1,8 +1,8 @@
 # Hello, lovely to see you! 👋
 
-_Pronouns:_ She / Her
+**Pronouns:** She / Her
 
-_Fun fact:_ I read cookbooks for fun, but I burn almost everything I cook.
+**LinkedIn:** https://www.linkedin.com/in/line-lindheim-t%C3%B8resby-6667a812b/
 
 ## About me
 
